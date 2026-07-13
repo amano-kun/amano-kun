@@ -13,7 +13,7 @@ i think you can tell now that i'm a very sensitive person,,, 	(◞ ‸ ◟ㆀ)  
 
 ~
 
-to get more infomation about me check my rentry extended which is [anotherdulogy](https://rentry.co/anotherduology). <3 "
+to get more infomation about me check my rentry extended which is [anotherduology](https://rentry.co/anotherduology). <3 "
 
 <img width="250" height="33" alt="tumblr_30a2228fdcaf28192c41ca6fc919e419_7e352ec7_250" src="https://github.com/user-attachments/assets/acda791c-878c-4ce6-93ef-8a9a622357c2" />
 <img width="250" height="33" alt="tumblr_1ebd39085c2a89b442b5b221357bf2ad_f25b45fe_250" src="https://github.com/user-attachments/assets/04f21717-8ffa-49d8-a4c5-0d1014c537a1" />
