@@ -1,5 +1,5 @@
+<img width="1000" height="725" alt="Worried_Sumire" src="https://github.com/user-attachments/assets/8a36672b-8347-4e9b-82a9-da04544c5ffa" />
 
-<img width="732" height="531" alt="_ (77)" src="https://github.com/user-attachments/assets/0e98fb7c-1d74-48e3-b3b5-3394ffefde8f" />
 
 
  
