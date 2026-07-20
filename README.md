@@ -1,4 +1,5 @@
-<img width="1000" height="725" alt="Worried_Sumire" src="https://github.com/user-attachments/assets/8a36672b-8347-4e9b-82a9-da04544c5ffa" />
+<img width="272" height="240" alt="DRA_-_Rei_Mekaru_-_Objection" src="https://github.com/user-attachments/assets/c2917321-32e2-4dea-97d4-13a02711747d" />
+
 
 
 
