@@ -11,7 +11,7 @@ also i try my best to match your enegry but if you don't like it please once aga
 
 i think you can tell now that i'm a **very** sensitive person,,, 	**(**◞ ‸ ◟""**)**  "
 
-~
+
 
 to get more infomation about me check my rentry extended which is [anotherduology](https://rentry.co/anotherduology). <**3** "
 
