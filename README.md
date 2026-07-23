@@ -1,4 +1,3 @@
-<img width="272" height="240" alt="DRA_-_Rei_Mekaru_-_Objection" src="https://github.com/user-attachments/assets/c2917321-32e2-4dea-97d4-13a02711747d" />
 
 
 
