@@ -3,7 +3,7 @@
 
 
  
-> call me rei if we've interacted.
+> ...call me rei if we've interacted.
 
 ♡ `⠀𓂃 okay to start things off here ,, 
  please **tell me** if i've made you uncomfortable ! when you don't say anything about what i did, it causes me to overthink a lot to the point i may come off a bit rude when we int later. (i'm sorry if this happens!)
