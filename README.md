@@ -13,7 +13,7 @@ i think you can tell now that i'm a **very** sensitive person,,, 	**(**◞ ‸ �
 
 
 
-`PERSONA FANDOM IWEC`. | <**3** "
+`PERSONA FANDOM IWEC`. </**3** "
 
 
 
