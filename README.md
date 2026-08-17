@@ -13,7 +13,7 @@ i think you can tell now that i'm a **very** sensitive person,,, 	**(**◞ ‸ �
 
 
 
-to get more information **about me** check my rentry extended which is [anotherduology](https://rentry.co/anotherduology). <**3** "
+`PERSONA FANDOM IWEC`. | <**3** "
 
 
 
