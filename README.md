@@ -13,7 +13,7 @@ i think you can tell now that i'm a **very** sensitive person,,, 	**(**◞ ‸ �
 
 
 
-PLEASE `modernsona & oldsona` iwec </**3** - unless i know you!  "
+PLEASE `modernsona` & `oldsona` fandom iwec </**3** - unless i know you!  "
 
 
 
