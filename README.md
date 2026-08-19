@@ -7,4 +7,3 @@
 
 <p align="center"><sub> > 𝐑𝐘𝐎𝐉𝐈 𝐌𝐎𝐂𝐇𝐈𝐙𝐔𝐊𝐈! </sub> </p>
 <p align="center"><sub> 𓂃 " . . . " </sub> </p>
-atabook (https://amanokun.atabook.org/)
