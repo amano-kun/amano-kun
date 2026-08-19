@@ -12,5 +12,4 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀𓂃 <sub>call me `𝓡𝐞𝐢(ka)` or `𝓡𝘂𝗺𝗶`!⠀⋮⠀16 /  DNI under 15.<sub> ゛
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀ ⠀⠀⠀
-<sub>EXTREMELY **old**sona & dra/sdra2 pilled,<sub> 
+⠀⠀⠀⠀ ⠀⠀⠀| EXTREMELY **old**sona & dra/sdra2 pilled, 
