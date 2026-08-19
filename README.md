@@ -11,7 +11,7 @@ also i try my best to match your enegry but if you don't like it please once aga
 
 i think you can tell now that i'm a **very** sensitive person,,, 	</**3**  "
 
-sorry no rentry for now, but please feel free to sign my ata once i set it back up! **(**ᴗ͈ˬᴗ͈**)**.. "
+sorry no rentry for now, but please feel free to sign my ata once i put it back up! **(**ᴗ͈ˬᴗ͈**)**.. "
 
 
 
