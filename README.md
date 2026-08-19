@@ -1,14 +1,8 @@
 
 
-<p align="center"><sub> > tell me, 𝐫𝐲𝐨𝐣𝐢! </sub> </p>
-<p align="center"><sub> 𓂃 " that's my temporary name. " </sub> </p> 
-<p align="center"><sub> > 𝐫𝐲𝐨𝐣𝐢! </sub> </p> 
-<p align="center"><sub> 𓂃 " i'm not even originally human. " </sub> </p>
 
-<p align="center"><sub> > 𝐑𝐘𝐎𝐉𝐈 𝐌𝐎𝐂𝐇𝐈𝐙𝐔𝐊𝐈! </sub> </p>
-<p align="center"><sub> 𓂃 " . . . " </sub> </p> 
 
-<p align="center"> <img width="500" height="500" alt="14972" src="https://github.com/user-attachments/assets/c3313b66-f6c1-4067-bb7f-4a98e278e4b6" />
+<p align="center"> <img width="2048" height="2048" alt="14977" src="https://github.com/user-attachments/assets/d1c62331-332d-44fb-80d9-93bcd811fa72" />
 
 
 
