@@ -2,7 +2,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀  **/**  ~໑᱖~
 ⠀ ⠀⠀⠀⠀⠀ ⠀⠀⠀ 
 
-<p align="center"> <img width="500" height="500" alt="14982" src="https://github.com/user-attachments/assets/e975eef1-2c53-405e-b154-41d590c4105a" />
+<p align="center"> <img width="2048" height="2048" alt="15012" src="https://github.com/user-attachments/assets/0d4231e4-3272-4569-b7ac-fdd090f3a4e5" />
 
 
 
